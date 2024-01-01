@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sadekanis77
+- 👀 im a seller in discord
+- 🌱 132 vouchs and proofs
+- 💞️ 200 costumer and 170 deals
+- 📫 owner of syla company and a pro dev
