@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @sadekanis77
-- 👀 im a seller in discord
+- 👋 Hi, I’m sadek
+- 👀 im a seller in discord famous so you may see me
 - 🌱 132 vouchs and proofs
 - 💞️ 200 costumer and 170 deals
-- 📫 owner of syla company and a pro dev
+- 📫 owner of sadek reborn and full stacked devloper
