@@ -1,5 +1,6 @@
 - 👋 Hi, I’m sadek
-- 👀 im a seller in discord famous so you may see me
-- 🌱 132 vouchs and proofs
+- 👀 well, im full stacked dev & cybersecurity proffesionel
+- 🌱 132 vouchs
 - 💞️ 200 costumer and 170 deals
 - 📫 owner of sadek reborn and full stacked devloper
+- 👀 having fun on coding over 7 years ago
